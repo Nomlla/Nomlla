@@ -1,0 +1,1 @@
+![kisspng-clip-art-kidney-bean-kidney-bean-openclipart-rim-cientistas-descobriram-que-ampquotcdqam-5d1fe3b8d31ca2 8277036215623710008647](https://user-images.githubusercontent.com/85586586/189494881-dd0e10fc-8057-458e-82fc-f1ef5aeac6b7.png)
